@@ -1,0 +1,18 @@
+He revisado la web https://www.dir.cat/ca?srsltid=AYCX9vKcyrCFq8T3BMreCO5B627OqYuCk5Ff3B03TZ\_0K5y6cOBAmdCQ
+
+
+
+Aciertos:
+
+\- Un vídeo en primera plana que ayuda a que el usuario se quede más rato.
+
+\- Web fácil de navegar.
+
+
+
+Problemas:
+
+\- Cinta de sus promos encima del vídeo en movimiento constante.
+
+\- La mayoría de desplegables son demasiado grandes y con mucha información
+
